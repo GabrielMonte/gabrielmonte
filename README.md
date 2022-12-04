@@ -1,5 +1,5 @@
 
-### Olá! Eu sou o Gabriel Vilhena 👋### Olá! Eu sou o Gabriel Vilhena 👋
+### Olá! Eu sou o Gabriel Vilhena 👋
 
 
 
